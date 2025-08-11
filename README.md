@@ -4,7 +4,7 @@
 
 <p align="center">· · ─────── ·𖥸· ─────── · ·
 
-<p align="center"> yumeshipper﹕big fan of random itch.io games﹕2 be cringe is 2 be free
+<p align="center"> yumeshipper﹕otherhearted﹕2 be cringe is 2 be free
 
 <p align="center"><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/72f67857-4289-4343-9884-5424ed0ba1d9" />
 
